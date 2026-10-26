@@ -1,6 +1,4 @@
 ## 
-
-Yo, i'm building an indie discovery lab called Junastar. We build small strange things to find out what happens next.
-Byee
- 
-· kenny.is 
+whats' up! working on reaching 1b high quality tokens per day. several projects in motion, hope to share more soon
+byee
+kenny.is 
